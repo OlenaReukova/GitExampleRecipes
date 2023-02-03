@@ -2,6 +2,10 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
+A COUPLE MONTHS back, I found some recipes in a favorite cookbook calling for an ingredient I didn't have. The ingredient, asafetida, is a funky powder that comes from a plant and a fairly common ingredient in Indian cooking. By the time I found some, though, I forgot which recipe it was in, and I spent an hour before bed rifling through that same cookbook to find the recipes again—not unpleasant, but not a particularly efficient use of my time.
+
+
+
 What you need
 =============
 
